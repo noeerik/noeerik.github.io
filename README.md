@@ -1,4 +1,16 @@
-# **Tinkywinky :see_no_evil: Tipsy :hear_no_evil: Laalaa :speak_no_evil: Poo**
+# **No imagination**
 
-### My laptop is burning up for some reason.
-|
+### Tabel :point_down:
+
+
+| Aine    | Sissejuhatus IT-sse | ITSPEA | Fyysika mittefyysikutele | Keskonnamojud | Diskmat | Progemine |
+| --------| --------------------| -------| -------------------------| --------------| --------| ----------|      
+| Olukord |         ok?         |  appi  |            ?             |     appi      |   ok?   |  :alien:  |
+
+
+
+
+
+
+
+222828IADB
